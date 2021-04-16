@@ -1,0 +1,1 @@
+# shitthelazy.github.io
